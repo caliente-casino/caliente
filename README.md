@@ -1,3 +1,5 @@
+# <a href="https://bit.ly/casmx">¡HAZ CLIC Y RECLAMA TU BONO!</a>
+
 # Caliente Casino 2025: El Líder en Juegos de Azar y Apuestas en México
 
 En 2025, Caliente Casino se reafirma como el líder absoluto en entretenimiento, juegos de azar y apuestas en México. Con décadas de experiencia y un enfoque en la innovación, Caliente Casino combina tradición y tecnología para ofrecer una experiencia de juego de clase mundial.
