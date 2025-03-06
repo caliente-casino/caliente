@@ -30,7 +30,7 @@ Con presencia física y en línea, Caliente Casino sigue siendo la marca más re
 
 ¡Descubre la emoción de ganar con Caliente Casino en 2025! Regístrate hoy y sé parte del mejor destino de entretenimiento en México. ¡Tu aventura de juego comienza aquí!
 
-casino caliente
+<a href="https://calientecasino-mx.mx">casino caliente</a>
 
 caliente
 
